@@ -23,6 +23,6 @@
 ---
 ---
 ## To learn more about my professional experiances connect with me on LinkedIn
-- [www.linkedin.com/in/joy-bridges-056804261]
+- [title](https://www.linkedin.com/in/joy-bridges-056804261)
 ---
 ---
