@@ -1,5 +1,6 @@
 # **Joy Bridges**
-Overview of my experience in The Year Up Program 
+---
+Here is an overview of my experience in The Year Up Program 
 
 
 # Bio
@@ -22,4 +23,6 @@ Overview of my experience in The Year Up Program
 ---
 ---
 ## To learn more about my professional experiances connect with me on LinkedIn
-- 
+- [www.linkedin.com/in/joy-bridges-056804261]
+---
+---
