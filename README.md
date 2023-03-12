@@ -23,4 +23,5 @@
 ---
 ---
 ## To learn more about my professional experiances connect with me on LinkedIn
-[(https://www.linkedin.com/in/joy-bridges-056804261)]
+
+[My LinkedIn Profile](www.linkedin.com/in/joy-bridges-056804261)
