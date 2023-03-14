@@ -22,6 +22,12 @@
 ### The thing I am most proud of as I previously mentioned is earning an internship at Bezos Academy. Let me tell you... I was ecstatic when I got my internship offer email stating that I would be working with this organization. Not only has The Year Up Program allowed me to intern at Bezos Academy and receive my Google Project Management Certification free of charge, but I was also rewarded Proffesional of The Week. My program cohorts delighted me by voting for me to be professional of the week stating that they beleive I deserved to be nominated because, I have always offered to help when needed with coursera and other assignments, I am knowledgeable and a very hard worker.
 ---
 ---
-## To learn more about my professional experiances connect with me on LinkedIn
 
-[My LinkedIn Profile](www.linkedin.com/in/joy-bridges-056804261)
+# **Recommendations**
+### Mike McCarty (IT Instructor) - Joy has been a pleasure and incredible positive force in my class. For six weeks she was a exhuberant participant and made sure I stayed on track with class.
+
+## To learn more about my professional experiances connect with me on LinkedIn
+---
+---
+
+[My LinkedIn Profile](https://www.linkedin.com/in/joy-bridges-056804261)
