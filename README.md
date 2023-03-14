@@ -18,6 +18,7 @@
 ### I feel honored to contribute the skills I have developed throughout my technical project management journey, and be apart of the mission at Bezos Academy which is providing access to preschool for children in underserved communities.
 ---
 ---
+---
 # **My Year Up Program Accomplishments**
 ### The thing I am most proud of as I previously mentioned is earning an internship at Bezos Academy. Let me tell you... I was ecstatic when I got my internship offer email stating that I would be working with this organization. Not only has The Year Up Program allowed me to intern at Bezos Academy and receive my Google Project Management Certification free of charge, but I was also rewarded Proffesional of The Week. My program cohorts delighted me by voting for me to be professional of the week stating that they beleive I deserved to be nominated because, I have always offered to help when needed with coursera and other assignments, I am knowledgeable and a very hard worker.
 ---
