@@ -1,4 +1,4 @@
-# **Joy Bridges**
+# **Joy K Bridges**
 ---
 *Here is an overview of my experience in The Year Up Program* 
 
@@ -11,10 +11,10 @@
 ---
 # **My Year Up Project Management Journey**
 ---
-### I am proud to be apart of a program that is commited to adressing the root cause of the Opportunity Divide in this country and works to create pathways to opportunities for young adults. In my time with Year Up I have completed a 4 month learning and development phase that I am very proud of. I was able to stay motivated, disciplined and manage my deliverables with my hard work and with the support of The Year Up staff. A few things I am excited about in this program are listed below.
-1. Obtaining my Google Coursera Project Management Certificate
+### I am so proud to be apart of a program that is commited to adressing the root cause of the Opportunity Divide in this country and works to create pathways to opportunities for young adults. In my time with Year Up I have completed a 4 month learning and development phase that I am very proud of. I was able to stay motivated, disciplined and manage my deliverables with my hard work and with the support of The Year Up staff. A few things I am excited about and accomplished in this program are listed below.
+1. Obtained my Google Coursera Project Management Certificate
 2. Completing the learning and development phase with straight A's
-3. Earning an internship at Bezos Academy. 
+3. Earned an internship at Bezos Academy. 
 ### I feel honored to contribute the skills I have developed throughout my technical project management journey, and be apart of the mission at Bezos Academy which is providing access to preschool for children in underserved communities.
 ---
 ---
