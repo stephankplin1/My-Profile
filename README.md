@@ -26,7 +26,7 @@
 # **Recommendations**
 ### Mike McCarty (IT Instructor) - Joy has been a pleasure and incredible positive force in my class. For six weeks she was a exhuberant participant and made sure I stayed on track with class.
 
-### Stephan kplin -Joy is been nothing but a pleasure to work with and has spearheaded alot of group work
+### Stephan kplin -Joy is been nothing but a pleasure to work with and has spearheaded alot of group work, and its been a joy working with her
 
 ## To learn more about my professional experiances connect with me on LinkedIn
 ---
